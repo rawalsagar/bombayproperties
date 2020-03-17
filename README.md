@@ -1,2 +1,2 @@
 # bombayproperties
-sell purchase hire PROPERTIES IN 7 AROUND MUMBAI
+sell purchase hire PROPERTIES IN & AROUND MUMBAI
