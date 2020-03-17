@@ -1,2 +1,2 @@
 # bombayproperties
-sell purchacse propeties in Mumbai
+sell purchase hire PROPERTIES IN 7 AROUND MUMBAI
